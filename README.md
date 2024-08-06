@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @NoruasDrol
+- Als Telefon Hotline Mitarbeiter arbeite ich in Deutschland vor mich her und weis gar nicht mehr wo zu und warum mache ich mich hier noch krumm
+- As a call center agent, I work in Germany and don't even know where to go and why I'm still bending over backwards here
+- Translatet with deepl.com
+- 🌱  Fun fact: Elephants can't jump
